@@ -1,0 +1,2 @@
+# FlowlessVibes_Beauty_wordpress_Site
+ THIS IS A WORDPRESS E-COMMERCE SITE FOR BEAUTY COSMATIC SHOPS
